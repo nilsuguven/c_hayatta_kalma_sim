@@ -1,0 +1,1 @@
+# c_hayatta_kalma_sim
